@@ -1,2 +1,2 @@
-# chloeusc.github.io
+# Chloeusc.github.io
 ici le printemps
